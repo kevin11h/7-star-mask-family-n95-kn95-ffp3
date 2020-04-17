@@ -8,3 +8,7 @@ https://www.yahoo.com/lifestyle/engineers-hope-to-solve-ventilator-shortage-with
 https://www.ebay.com/c/1148595921
 
 https://www.ebay.com/itm/NEW-Israeli-Civilian-Gas-Mask-With-Filter-and-Auxiliary-Liquid-Attachment-Valve/254560710671?hash=item3b4500300f:g:MYwAAOSwTjdeiSxO
+
+
+https://www.fda.gov/medical-devices/personal-protective-equipment-infection-control/n95-respirators-and-surgical-masks-face-masks
+https://www.ready.gov/kit
